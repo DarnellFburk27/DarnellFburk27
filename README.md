@@ -1,6 +1,6 @@
 ## Hi there my name is Darnell
-Aspiring IT professional with a strong interest in cybersecurity.
+🌟 Aspiring IT professional with a strong interest in cybersecurity.
 
-Currently pursuing a degree in cybersecurity.
+🎓 Currently pursuing a degree in cybersecurity.
 
-Passionate about technology, problem-solving, and learning new skills.
+💻 Passionate about technology, problem-solving, and learning new skills.
